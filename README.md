@@ -1,4 +1,5 @@
-### Hi there 👋
+![DancingUnicornUnicornGIF](https://github.com/SiljaTorki/SiljaTorki/assets/42578147/fe5f55b6-6405-407b-abe0-42c172047309)
+
 
 <!--
 **SiljaTorki/SiljaTorki** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
